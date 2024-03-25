@@ -2,7 +2,7 @@
 
 Are you an entrepreneur wanting to get into the profitable car rental business? With the growing need for convenient transportation choices, beginning a car rental business may be a profitable business. However, like any other business, success in the car rental market requires careful strategy, execution, and the correct tools. A powerful [car rental script](https://sangvish.com/car-rental-script/) is one solution that assists you in optimizing your processes and increasing your productivity. In this article, we delve into every detail you need to know about car rental scripts and how they may encourage your path toward entrepreneurship.
 
-<div class="Box-sc-g0xbh4-0 iIZCet"><img alt="kikornot.png" src="https://github.com/sangvishtechnologies/uber-for-laundry/assets/161323540/ececedc8-765d-4e50-8ac3-51f70c0bc41c?raw=true" data-hpc="true" class="Box-sc-g0xbh4-0 kzRgrI"></div>
+<div class="Box-sc-g0xbh4-0 iIZCet"><img alt="kikornot.png" src="https://github.com/sangvishtechnologies/uber-for-laundry/images/161323540/ececedc8-765d-4e50-8ac3-51f70c0bc41c?raw=true" data-hpc="true" class="Box-sc-g0xbh4-0 kzRgrI"></div>
 
 
 # Understanding Car Rental Scripts
