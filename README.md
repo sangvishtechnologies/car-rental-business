@@ -2,6 +2,9 @@
 
 Are you an entrepreneur wanting to get into the profitable car rental business? With the growing need for convenient transportation choices, beginning a car rental business may be a profitable business. However, like any other business, success in the car rental market requires careful strategy, execution, and the correct tools. A powerful [car rental script](https://sangvish.com/car-rental-script/) is one solution that assists you in optimizing your processes and increasing your productivity. In this article, we delve into every detail you need to know about car rental scripts and how they may encourage your path toward entrepreneurship.
 
+![car-rental-script](https://github.com/sangvishtechnologies/car-rental-business/assets/161323540/5553ddc6-5e8c-4f70-b0bd-f813db5a662b)
+
+
 # Understanding Car Rental Scripts
 Before we go into the details, let's clarify what a [car rental script](https://sangvish.com/car-rental-script/) is. A car rental script is a software solution that automates and handles numerous aspects of a car rental firm. From handling vehicle supplies to managing bookings, reservations, payments, and customer interactions, an effective car rental script acts as the backbone of your business.
 # Important Features of a Car Rental Script:
